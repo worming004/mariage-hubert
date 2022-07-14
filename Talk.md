@@ -1,0 +1,34 @@
+# Discour
+
+Comment mesurer l'amour ?
+Hubert et moi même aimons regarder le monde qui nous entoure d'un oeil scientifique. Utilisons cet oeil pour mesurer précisémment, et peut-être démontrer l'amour que Céline et Hubert éprouvent l'un pour l'autre.
+
+Est-ce que l'amour se mesure en kilomètre ?
+Hubert et Céline aiment se donner ees objectifs loin dans le monde. Je rappelle qu'ils ont été cherché le 3e élément de leurs famille à Nice. 1175km pour Orval, leurs chien. Mais il ne faut pas chercher aussi loin la plus grande distance parcourue. Face aux traditions, nous sommes ici à 1380km de leurs foyers.
+Si l'amour se mesure en kilomètre, leur amour est grand.
+
+Est-ce que l'amour se mesure en jours ?
+Hubert et Céline sont unis depuis ..., c'est-à-dire ... jours. C'est peut-être peu aujourd'hui, mais rappellons qu'ils sont sont promis une vie ensemble jusqu'à ce que la mort les sépare. Avec une espérance de vie moyenne de 80 ans, ils leurs restent 18 615 jours ensembles.
+Si l'amour se mesure en jours, leur amour est grand.
+
+Est-ce que l'amour se mesure en croissance du PIB ?
+Hubert et Céline aujourd'hui investissent dans leur foyer. Une magnifique maison en devenir, mais beaucoup de travaux aujourd'hui.
+Si leur amour se mesure en investissement, leur amour est grand.
+
+Est-ce que l'amour se mesure en joule ?
+Hubert aujourd'hui dépense tous les joules provennant de consommation alcoolisée pendant la jeunesse pour leur bien-être. Si vous n'avez pas connu Hubert dans son adolescence exemplaire, vous avez ma parole qu'il a encore une énorme quantité de joule à dépensé.
+Si leur amour se mesure en énergie, le potentiel d'amour est grand.
+
+Est-ce que l'amour se mesure en litre ?
+La présence d'enfant dans cette salle m'empêche de détailler mon propos. Bonne chance les parents avec ça.
+Mais j'ose espérer que leur amour est grand.
+
+Est-ce que l'amour se mesure en kilogramme ?
+L'une des propriété intéressantes de la masse, est qu'elle est directement proportionnel à l'inertie. Et puisque leurs amours est inébranlable, alors la masse de leur amour est colossale.
+Si leur amour se mesure en kilogramme, alors leurs amour est grand.
+
+Est-ce que l'amour se mesure en ampère ?
+Je ne sais pas si vous voyez comme moi le champs magnétique qui entourent Hubert et Céline. Mais je peux vous assurer que le courant passe toujours aussi bien. De temps en temps une étincelle jaït.
+Si leur amour se mesure en ampère, alors leurs amour est grand.
+
+Peu importe quelle unité de mesure vous voulez utiliser, vous saurez toujours voir que leurs amour est grand.
